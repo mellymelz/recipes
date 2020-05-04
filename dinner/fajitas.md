@@ -1,6 +1,6 @@
 # Fajitas
 
-#### This recipe came from www.tastesbetterfromscratch and it is absolutly delicious and very easy!
+#### This recipe came from www.tastesbetterfromscratch.com and it is absolutly delicious and very easy!
 
 ## Ingredients
 
