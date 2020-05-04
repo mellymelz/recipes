@@ -1,6 +1,6 @@
 # Bulgogi
 
-Wholy mother of all things this is so delicious *drools* 
+#### recipe from www.savorysweetlife.com and it is beyond amazing!
 
 Servings: 4
 
