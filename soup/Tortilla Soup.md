@@ -30,4 +30,5 @@ Remove chicken from pot, cool slightly and then shred using forks or hands.
 Return chicken to pot and add the lime juice, corn, beans and tortillas.
 Taste and season with salt and pepper to taste and add the cilantro.
 
-### Garnish this with crispy tortillas, shredded cheese, avocado, sour cream, fresh lime, cilantro... whatever! Freezes well too.
+### Notes
+Garnish this with crispy tortillas, shredded cheese, avocado, sour cream, fresh lime, cilantro... whatever! Freezes well too.
