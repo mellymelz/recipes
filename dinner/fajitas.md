@@ -1,5 +1,7 @@
 # Fajitas
 
+### This recipe is from tastes better from scratch and it so amazing!
+
 * 1.5 lbs of steak (flank/skirt/rump), chicken, shrimp or tofu
 * 1 tsp chilli powder
 * 1 tsp cumin
