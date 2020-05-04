@@ -1,6 +1,6 @@
 # Fajitas
 
-### This recipe is from tastes better from scratch and it so amazing!
+#### This recipe came from www.tastesbetterfromscratch and it is absolutly delicious and very easy!
 
 * 1.5 lbs of steak (flank/skirt/rump), chicken, shrimp or tofu
 * 1 tsp chilli powder
