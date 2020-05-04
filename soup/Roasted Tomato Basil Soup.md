@@ -27,5 +27,6 @@ Bring to a boil then reduce to a simmer for 40 minutes uncovered.
 Blend using immersion(stick) blender or in a regular blender *in batches!* 
 Taste and adjust seasoning if desired.
 
-### Note that if you are blending in batches DO NOT overfill your blender! 
+### Notes
+If you are blending in batches DO NOT overfill your blender! 
 Also, cover top of blender with a cloth to protect your hand from getting burnt by hot soup.
