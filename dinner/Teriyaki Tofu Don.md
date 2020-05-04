@@ -1,7 +1,5 @@
 # Teriyaki Tofu Don
 
-- Serves 4
-
 #### This recipe came from https://hirokoskitchen.com 
 
 ## Ingredients
