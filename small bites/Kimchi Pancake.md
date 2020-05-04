@@ -1,6 +1,6 @@
 # Kimchi Pancake
 
-- Serves 1-2 depending how hungry you are!
+Serves 1-2 depending how hungry you are!
 
 #### from www.woksoflife.com this is a great quick snack for 2 when you are pressed for time! or have too much kimchi (is there such a thing?)
 
