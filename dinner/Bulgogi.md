@@ -1,6 +1,6 @@
 # Bulgogi
 
-#### recipe from www.savorysweetlife.com and it is beyond amazing!
+#### recipe from www.savorysweetlife.com and it is beyond amazing! takes me back to my Netaholics days in Richmond <3
 
 Servings: 4
 
