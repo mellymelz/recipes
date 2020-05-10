@@ -16,15 +16,15 @@
 
 ## Method
 
-Preheat oven to 400F
-In a saucepan combine the enchilada sauce and green chillies and warm.
-In a large bowl combine the beans, avocado, onion, tomato, cilantro, cumin and garlic salt.
-Mix gently so you don't mash the avocado.
-Lay out the tortillas and put about 3 Tbsp of mix in each one. (i like to lay them all out and fill at same time so they are equal)
-In a glass 9x13" lay about a cup of the sauce on the bottom and make sure to cover all the bottom with sauce.
-Roll those tortillas and place in the baking dish.
-Cover with the remaining sauce and then the cheese.
-Bake 15-20 minutes.
+- Preheat oven to 400F
+- In a saucepan combine the enchilada sauce and green chillies and warm.
+- In a large bowl combine the beans, avocado, onion, tomato, cilantro, cumin and garlic salt.
+- Mix gently so you don't mash the avocado.
+- Lay out the tortillas and put about 3 Tbsp of mix in each one. (i like to lay them all out and fill at same time so they are equal)
+- In a glass 9x13" lay about a cup of the sauce on the bottom and make sure to cover all the bottom with sauce.
+- Roll those tortillas and place in the baking dish.
+- Cover with the remaining sauce and then the cheese.
+- Bake 15-20 minutes.
 
 ### Notes
 
