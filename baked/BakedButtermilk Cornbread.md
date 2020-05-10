@@ -14,11 +14,11 @@
 
 ## Method
 
-Pre heat oven to 375F and Grease and 8"x8" square pan.
-Combine flour, cornmeal and salt in a small bowl, set aside.
-On the stove in a medium pot melt the butter, stir in sugar.
-Remove from heat and add eggs right away and mix/beat in until well blended.
-Combine buttermilk and baking soda then stir into butter/sugar/egg.
-Stir in the dry ingrediends until a few lumps remain but mostly smooth.
-Pour into prepared pan and bake 30-40 minutes. 
-Do a toothpick test if you are unsure but it will be golden top and edges and firm to the touch.
+- Pre heat oven to 375F and Grease and 8"x8" square pan.
+- Combine flour, cornmeal and salt in a small bowl, set aside.
+- On the stove in a medium pot melt the butter, stir in sugar.
+- Remove from heat and add eggs right away and mix/beat in until well blended.
+- Combine buttermilk and baking soda then stir into butter/sugar/egg.
+- Stir in the dry ingrediends until a few lumps remain but mostly smooth.
+- Pour into prepared pan and bake 30-40 minutes. 
+- Do a toothpick test if you are unsure but it will be golden top and edges and firm to the touch.
