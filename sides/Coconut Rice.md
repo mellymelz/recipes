@@ -20,7 +20,7 @@ Serves 4
 
 ## Method
 
-Heat pot medium and melt butter/oil. Saute garlic, ginger and cinnamon stick.
-Add rice, stirring about 2 minutes.
-Then add coconut milk, water, lime and S&P bring to a simmer stir once, cover and turn heat to low.
-Cook 15 minutes then fluff rice with a fork then cover and let rest 5 minutes before serving.
+- Heat pot medium and melt butter/oil. Saute garlic, ginger and cinnamon stick.
+- Add rice, stirring about 2 minutes.
+- Then add coconut milk, water, lime and S&P bring to a simmer stir once, cover and turn heat to low.
+- Cook 15 minutes then fluff rice with a fork then cover and let rest 5 minutes before serving.
