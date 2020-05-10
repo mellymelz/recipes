@@ -26,9 +26,9 @@ Serves 1-2 depending how hungry you are!
 
 ## Method
 
-Stir dry ingredients together to combine.
-Add the kimchi, liquids and green onion and stir to combine. (It should resemble a pancake batter but chunky)
-Heat a non stick or cast iron pan at medium high heat. Add oil.
-Cook that pancake! 
-Stir sauce ingredients together in a small dish for dipping.
-I like to cut my pancake into pieces and then sprinkle with toasted sesame seeds.
+- Stir dry ingredients together to combine.
+- Add the kimchi, liquids and green onion and stir to combine. (It should resemble a pancake batter but chunky)
+- Heat a non stick or cast iron pan at medium high heat. Add oil.
+- Cook that pancake! 
+- Stir sauce ingredients together in a small dish for dipping.
+- I like to cut my pancake into pieces and then sprinkle with toasted sesame seeds.
