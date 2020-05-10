@@ -10,9 +10,9 @@
 
 ## Method
 
-Heat all ingredients together in a small pot on medium high.
-Stir well and once boiling reduce heat to low and simmer until slightly reduced.
-Cool, then strain the garlic and ginger out.
+- Heat all ingredients together in a small pot on medium high.
+- Stir well and once boiling reduce heat to low and simmer until slightly reduced.
+- Cool, then strain the garlic and ginger out.
 
 ### Notes
 
