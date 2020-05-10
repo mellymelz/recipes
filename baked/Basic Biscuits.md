@@ -12,10 +12,10 @@ makes 12
 
 ## Method
 
-Preheat oven to 450F 
-Whisk together dry ingredients.
-Cut butter in. 
-Stir in milk.
-Knead dough gently. 
-Roll out and cut into biscuits.
-Bake 13-15 minutes or until golden.
+- Preheat oven to 450F 
+- Whisk together dry ingredients.
+- Cut butter in. 
+- Stir in milk.
+- Knead dough gently. 
+- Roll out and cut into biscuits.
+- Bake 13-15 minutes or until golden.
