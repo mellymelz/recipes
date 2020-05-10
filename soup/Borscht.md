@@ -23,11 +23,11 @@
 
 ## Method
 
-In a large pot on medium high, head oil and sweat the onion and garlic and caraway (if you have it) 4 minutes.
-Add beets, potato, cabbage, celery, carrot, bay leaves, salt and pepper. Stir often until beets start to soften. (about 10 minutes)
-Stir in tomato paste and brown sugar and cook another 2 minutes.
-Add water, bring to a boil, then reduce to a simmer and let it go about 40 minutes.
-Stir in vinegar at the end and discard bay leaves.
+- In a large pot on medium high, head oil and sweat the onion and garlic and caraway (if you have it) 4 minutes.
+- Add beets, potato, cabbage, celery, carrot, bay leaves, salt and pepper. Stir often until beets start to soften. (about 10 minutes)
+- Stir in tomato paste and brown sugar and cook another 2 minutes.
+- Add water, bring to a boil, then reduce to a simmer and let it go about 40 minutes.
+- Stir in vinegar at the end and discard bay leaves.
 
 ### Notes 
 
