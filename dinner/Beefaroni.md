@@ -15,12 +15,12 @@
 
 ## Method
 
-Cook off the noodles until al dente. Set aside.
-In a large pot, heat a little oil and brown the beef then add the onion, garlic and mushrooms.
-Once thats all cooked off add the canned tomato and carrots.
-Simmer until carrots are cooked through.
-Add the noodles and parmesan cheese.
-Adjust flavor by adding ketchup and sriracha.
+- Cook off the noodles until al dente. Set aside.
+- In a large pot, heat a little oil and brown the beef then add the onion, garlic and mushrooms.
+- Once thats all cooked off add the canned tomato and carrots.
+- Simmer until carrots are cooked through.
+- Add the noodles and parmesan cheese.
+- Adjust flavor by adding ketchup and sriracha.
 
 ### Notes
 
