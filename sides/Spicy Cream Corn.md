@@ -17,13 +17,11 @@
 
 ## Method
 
-De seed jalapenos and dice 1 fine and the other rough. Keep seperated.
-Add 1.25cup corn and 1/4 cup stocks to a blender and puree 10 seconds. Remove from blender and place in a small bowl.
-Using blender again, 1 cup corn, 1/2 cup stock and the roughly chopped jalapeno to blender and puree until smooth.
-(about 20 seconds) set aside.
-In a large pan, saute onions on medium low until golden. (about ten minutes)
-Add finely diced jalapeno and saute another 2 minutes.
-Add spices stir 30 seconds to mix well before adding the rest of the corn and the 2 pureed corn bowls.
-(If you are using fresh corn cook it a couple minutes before adding pureed)
-Add lime (or lemon) and salt and pepper to taste.
-Garnish with a sprinkling of paprika and a drizzle of honey.
+- De seed jalapenos and dice 1 fine and the other rough. Keep seperated.
+- Add 1.25cup corn and 1/4 cup stocks to a blender and puree 10 seconds. Remove from blender and place in a small bowl.
+- Using blender again, 1 cup corn, 1/2 cup stock and the roughly chopped jalapeno to blender and puree until smooth. (about 20 seconds) set aside.
+- In a large pan, saute onions on medium low until golden. (about ten minutes)
+- Add finely diced jalapeno and saute another 2 minutes.
+- Add spices stir 30 seconds to mix well before adding the rest of the corn and the 2 pureed corn bowls. (If you are using fresh corn cook it a couple minutes before adding pureed)
+- Add lime (or lemon) and salt and pepper to taste.
+- Garnish with a sprinkling of paprika and a drizzle of honey.
