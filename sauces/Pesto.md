@@ -13,12 +13,12 @@
 
 ## Method
 
-Smash garlic and salt together with motar and pestle until smooth.
-Wash and dry basil leaves and remove from stems, then coarsly chop.
-Add basil to salt/garlic paste. Pound away until mashed into a nice paste.
-Add olive oil one spoonful at a time until well incorperated.
-Grate the parmesan cheese fine then keep grinding that into the pesto.
-Chop the pine nuts a little and add last then mix until its all nice and smooth.
+- Smash garlic and salt together with motar and pestle until smooth.
+- Wash and dry basil leaves and remove from stems, then coarsly chop.
+- Add basil to salt/garlic paste. Pound away until mashed into a nice paste.
+- Add olive oil one spoonful at a time until well incorperated.
+- Grate the parmesan cheese fine then keep grinding that into the pesto.
+- Chop the pine nuts a little and add last then mix until its all nice and smooth.
 
 ### Notes
 
