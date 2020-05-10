@@ -26,8 +26,8 @@ Colourful Cous Cous Salad
 
 ## Method
 
-In a saucepan, bring 1.25 cups water to a boil, stir in cous cous and raisins. 
-Cover and remove from heat; let stand 5 minutes. Fluff with fork.
-In a large bowl combine cous cous mixture, chickpeas, onion, parsley, tomato, pepper and zucchini.
-In a small bowl whisk together dressing ingredients. 
-Mix together then top with crumbled feta.
+- In a saucepan, bring 1.25 cups water to a boil, stir in cous cous and raisins. 
+- Cover and remove from heat; let stand 5 minutes. Fluff with fork.
+- In a large bowl combine cous cous mixture, chickpeas, onion, parsley, tomato, pepper and zucchini.
+- In a small bowl whisk together dressing ingredients. 
+- Mix together then top with crumbled feta.
