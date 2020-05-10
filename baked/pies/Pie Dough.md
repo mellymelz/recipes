@@ -12,12 +12,12 @@
 
 ## Method
 
-Blend flour and milk powder. 
-Add shortening and cut into flour until pea sized. (For a mealy dough crumb size)
-Dissolve salt in water.
-Add all water at once to fat flour mix.
-Since i do this in my stand mixer i use paddle attachment and set to speed 1 JUST until dough comes together.
-Wrap and chill the dough.
+- Blend flour and milk powder. 
+- Add shortening and cut into flour until pea sized. (For a mealy dough crumb size)
+- Dissolve salt in water.
+- Add all water at once to fat flour mix.
+- Since i do this in my stand mixer i use paddle attachment and set to speed 1 JUST until dough comes together.
+- Wrap and chill the dough.
 
 ### Notes
 
