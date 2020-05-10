@@ -18,10 +18,10 @@
 
 ## Method
 
-In a large pot or saute pan with a lid on medium high, cook garlic, onion and pepper 2-3 minutes.
-Add rice and cook another 2 minutes. 
-Add seasonings and tomato paste, cook another 2 minutes.
-Add stock and beans, bring to a boil then reduce to low.
-Cover and let simmer low 15-20 minutes.
-Remove from heat and let stand covered 5 minutes. 
-Fluff with a fork.
+- In a large pot or saute pan with a lid on medium high, cook garlic, onion and pepper 2-3 minutes.
+- Add rice and cook another 2 minutes. 
+- Add seasonings and tomato paste, cook another 2 minutes.
+- Add stock and beans, bring to a boil then reduce to low.
+- Cover and let simmer low 15-20 minutes.
+- Remove from heat and let stand covered 5 minutes. 
+- Fluff with a fork.
