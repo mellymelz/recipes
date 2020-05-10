@@ -23,12 +23,12 @@
 
 ## Method
 
-In a large pot, heat the oil and saute the onion, garlic and bell pepper.
-Add the tomato, chillies, broth, spices and whole raw chicken breasts.
-Simmer together about 15-20 minutes, chicken should be fully cooked. 
-Remove chicken from pot, cool slightly and then shred using forks or hands.
-Return chicken to pot and add the lime juice, corn, beans and tortillas.
-Taste and season with salt and pepper to taste and add the cilantro.
+- In a large pot, heat the oil and saute the onion, garlic and bell pepper.
+- Add the tomato, chillies, broth, spices and whole raw chicken breasts.
+- Simmer together about 15-20 minutes, chicken should be fully cooked. 
+- Remove chicken from pot, cool slightly and then shred using forks or hands.
+- Return chicken to pot and add the lime juice, corn, beans and tortillas.
+- Taste and season with salt and pepper to taste and add the cilantro.
 
 ### Notes
 Garnish this with crispy tortillas, shredded cheese, avocado, sour cream, fresh lime, cilantro... whatever! Freezes well too.
