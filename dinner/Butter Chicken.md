@@ -21,6 +21,6 @@
 
 ## Method
 
-In a large pot, melt butter and oil and good the onion, ginger and garlic until light gold (about 3-4 minutes)
-Add the chicken, tomato, and spices then cook another 5-6 minutes. Chicken should be cooked or very close.
-Add the cream or yogurt last and simmer for 10 minutes.
+- In a large pot, melt butter and oil and good the onion, ginger and garlic until light gold (about 3-4 minutes)
+- Add the chicken, tomato, and spices then cook another 5-6 minutes. Chicken should be cooked or very close.
+- Add the cream or yogurt last and simmer for 10 minutes.
