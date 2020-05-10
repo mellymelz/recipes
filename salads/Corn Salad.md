@@ -23,10 +23,10 @@
 
 ## Method
 
-In a large saute pan, heat med high and add a bit of oil to brown corn.
-Once you are getting golden add the garlic, onion and spices. 
-When onions are getting soft add the bell and jalapeno peppers.
-While those are getting soft but not overly soft mix the simple dressing on the side in a small bowl.
-Remove from heat and add the beans, cilantro and dressing. 
+- In a large saute pan, heat med high and add a bit of oil to brown corn.
+- Once you are getting golden add the garlic, onion and spices. 
+- When onions are getting soft add the bell and jalapeno peppers.
+- While those are getting soft but not overly soft mix the simple dressing on the side in a small bowl.
+- Remove from heat and add the beans, cilantro and dressing. 
 
 Enjoy it warm or cool! 
