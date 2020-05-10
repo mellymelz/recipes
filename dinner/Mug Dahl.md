@@ -22,13 +22,15 @@
 
 ## Method
 
-Boil lentils and 3 cups of water then reduce to medium heat, cover and cook 30 minutes.
+- Boil lentils and 3 cups of water then reduce to medium heat, cover and cook 30 minutes.
 Add extra cup of water as needed. 
-When lentils are soft cover and let stand. There will be a little water left.
+- When lentils are soft cover and let stand. There will be a little water left.
+- In a seperate pan, heat oil on med high. Add the cumin seed and crackle.
+- Add onion and cook until translucent. 
+- Add remaining ingredients except lemon juice, sugar and cilantro.
+- Cook a couple minutes then add to the lentil pot.
+- Now add the sugar, lemon juice and cilantro. Bring to a boil, then immediately turn heat off and let stand ten minutes.
 
-In a seperate pan, heat oil on med high. Add the cumin seed and crackle.
-Add onion and cook until translucent. 
-Add remaining ingredients except lemon juice, sugar and cilantro.
-Cook a couple minutes then add to the lentil pot.
-Now add the sugar, lemon juice and cilantro. Bring to a boil, then immediately turn heat off and let stand ten minutes.
+### Notes
+
 Saucyness is dependant on how much water in the lentils, so you if are a saucy girl like me more water is better.
