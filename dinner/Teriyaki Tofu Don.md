@@ -27,10 +27,10 @@
 
 ## Method
 
-Cut the tofu into bite sized pieces and coat in the marinade ingredients for about 10 minutes.
-After that time has passed coat the tofu in the potato starch. 
-Heat a pan to medium high heat and add cooking oil.
-Cook tofu until golden then add the sauce and combine well.
+- Cut the tofu into bite sized pieces and coat in the marinade ingredients for about 10 minutes.
+- After that time has passed coat the tofu in the potato starch. 
+- Heat a pan to medium high heat and add cooking oil.
+- Cook tofu until golden then add the sauce and combine well.
 
 ### Notes
 
