@@ -20,10 +20,10 @@ Servings: 4
 
 ## Method
 
-Combine all the ingredients except agave and massage into the meat for 2 minutes.
-Cover, put in fridge and let it sit overnight if its beef. If using tempeh let it sit only 2-4 hours.
-In a large cast iron pan set to a high heat and add 1-2 Tbsp oil. Cook the protien in batches so you get some carmelization.
-Taste, if you like it a little sweeter add some agave syrup and coat the beef well. 
+- Combine all the ingredients except agave and massage into the meat for 2 minutes.
+- Cover, put in fridge and let it sit overnight if its beef. If using tempeh let it sit only 2-4 hours.
+- In a large cast iron pan set to a high heat and add 1-2 Tbsp oil. Cook the protien in batches so you get some carmelization.
+- Taste, if you like it a little sweeter add some agave syrup and coat the beef well. 
 
 ## Notes
 
