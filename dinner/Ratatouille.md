@@ -20,9 +20,9 @@
 
 ## Method
 
-In a large heavy bottomed pot or dutch oven, on medium high heat add a little olive oil and brown the onion and garlic.
-Add veggies, spices and tomato.
-Stir then turn heat down to medium low / low and simmer covered for 1.5 hours.
+- In a large heavy bottomed pot or dutch oven, on medium high heat add a little olive oil and brown the onion and garlic.
+- Add veggies, spices and tomato.
+- Stir then turn heat down to medium low / low and simmer covered for 1.5 hours.
 
 ### Notes
 
