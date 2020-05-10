@@ -28,18 +28,18 @@
 
 ## Method
 
-Preheat oven to 350F
-Sift together the flour, baking powder and salt. Set aside.
-In a large bowl beat together egg yolks with 3/4 cup of sugar until lightened then mix in the 1/3 cup milk and vanilla.
-In a seperate bowl beat the egg whites with the remaining 1/4 cup of sugar until soft peaks.
-Fold the dry indredients and yolks together.
-Then fold the whites in. 
-Pour into prepared pan and smooth top with offset spatula.
-Bake 25-35 minutes.
-Cool the cake then poke holes all over it with a skewer.
-Combine the soaking liquid and pour over the cake.
-Cover and put in fridge for 1 hr to overnight.
-Whip together topping ingredients and spread all over the cake before you want to eat it.
+- Preheat oven to 350F
+- Sift together the flour, baking powder and salt. Set aside.
+- In a large bowl beat together egg yolks with 3/4 cup of sugar until lightened then mix in the 1/3 cup milk and vanilla.
+- In a seperate bowl beat the egg whites with the remaining 1/4 cup of sugar until soft peaks.
+- Fold the dry indredients and yolks together.
+- Then fold the whites in. 
+- Pour into prepared pan and smooth top with offset spatula.
+- Bake 25-35 minutes.
+- Cool the cake then poke holes all over it with a skewer.
+- Combine the soaking liquid and pour over the cake.
+- Cover and put in fridge for 1 hr to overnight.
+- Whip together topping ingredients and spread all over the cake before you want to eat it.
 
 ### Notes
 
