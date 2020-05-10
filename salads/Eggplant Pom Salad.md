@@ -26,12 +26,12 @@
 
 ## Method
 
-Preheat oven to 400F
-Combine dressing, set aside.
-On a baking tray lined with parchment, brush eggplant with oil and salt. Roast 10 minutes.
-Flip eggplant, then add pita and 1 Tbsp oil and bake another 10 minutes.
-Remove from oven and brush eggplant with molasses.
-Toss romaine with herbs and dressing. Garnish with eggplant, pita, fresh pomegrantes and a sprinkle of sumac.
+- Preheat oven to 400F
+- Combine dressing, set aside.
+- On a baking tray lined with parchment, brush eggplant with oil and salt. Roast 10 minutes.
+- Flip eggplant, then add pita and 1 Tbsp oil and bake another 10 minutes.
+- Remove from oven and brush eggplant with molasses.
+- Toss romaine with herbs and dressing. Garnish with eggplant, pita, fresh pomegrantes and a sprinkle of sumac.
 
 ### Pomegrante Molasses (1 cup)
 
@@ -39,8 +39,8 @@ Toss romaine with herbs and dressing. Garnish with eggplant, pita, fresh pomegra
 * 1/2 cup sugar
 * 1 Tbsp fresh lemon juice
 
-boil until sugar dissolves, then reduce to med low and simmer until reduced to 1 cup (it will take about 1 hour)
-Cool 30 min at room temp before refridgerating. Keeps for 6 months.
+- boil until sugar dissolves, then reduce to med low and simmer until reduced to 1 cup (it will take about 1 hour)
+- Cool 30 min at room temp before refridgerating. Keeps for 6 months.
 
 ### Notes
 
