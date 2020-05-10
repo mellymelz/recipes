@@ -18,11 +18,11 @@
 
 ##  Method
 
-Heat 1 Tbsp oil in a large pot med high, add cumin seed, mustard seed and curry leaves. Crackle.
-Add ginger, garlic and onion then cook until golden.
-Add pumpkin, chillis, curry powder, turmeric and salt.
-Turn to medium/medium low and let it simmer in its own juices stirring occasionally.
-Adjust flavors by using sugar and lemon juice to taste. Turn to low and let it go until its ready.
+- Heat 1 Tbsp oil in a large pot med high, add cumin seed, mustard seed and curry leaves. Crackle.
+- Add ginger, garlic and onion then cook until golden.
+- Add pumpkin, chillis, curry powder, turmeric and salt.
+- Turn to medium/medium low and let it simmer in its own juices stirring occasionally.
+- Adjust flavors by using sugar and lemon juice to taste. Turn to low and let it go until its ready.
 
 ### Notes
 
