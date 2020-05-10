@@ -23,10 +23,10 @@
 
 ## Method
 
-Take your protien of choice, marinate with top list seasonings and set aside one hour to marinate.
-Chop veg and with bottom half seasonings mix well and set aside.
-Grill or sear meat in cast iron.
-Sear veg in hot pan or cast iron.
+- Take your protien of choice, marinate with top list seasonings and set aside one hour to marinate.
+- Chop veg and with bottom half seasonings mix well and set aside.
+- Grill or sear meat in cast iron.
+- Sear veg in hot pan or cast iron.
 
 ### Notes
 
