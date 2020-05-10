@@ -14,14 +14,14 @@
 
 ## Method
 
-In small pan simmer together the mirin, sake, miso and agave and leave at a low temp while you cook eggplant.
-Set oven to broil.
-Brush eggplant with sesame oil place on a sheet pan cut side down and place in oven.
-Broil 3 minutes but check to make sure its not burning.
-Flip eggplant and repeat. 
-If eggplant is still not tender turn oven to bake and let it go until its soft.
-Once eggplant is tender remove from oven and cover the flesh with the miso sauce.
-Broil about 1 minute until bubbling
+- In small pan simmer together the mirin, sake, miso and agave and leave at a low temp while you cook eggplant.
+- Set oven to broil.
+- Brush eggplant with sesame oil place on a sheet pan cut side down and place in oven.
+- Broil 3 minutes but check to make sure its not burning.
+- Flip eggplant and repeat. 
+- If eggplant is still not tender turn oven to bake and let it go until its soft.
+- Once eggplant is tender remove from oven and cover the flesh with the miso sauce.
+- Broil about 1 minute until bubbling
 
 ### Notes
 
