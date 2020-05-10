@@ -17,15 +17,15 @@
 
 ## Method
 
-Pre heat the oven to 400F and prepare a baking tray by lining with parchment.
-Toss the tomato in 1/4 cup olive oil and some salt and pepper and lay on tray evenly.
-Roast in oven for 45 minutes.
-In a large pot, heat 2 Tbsp oil and 2 Tbsp butter and saute onion, garlic and chili flakes until translucent.
-Add canned tomato, basil, thyme and stock and simmer.
-Once the tomatoes in the oven are done add those to the pot as well as all the juices on your baking tray.
-Bring to a boil then reduce to a simmer for 40 minutes uncovered.
-Blend using immersion(stick) blender or in a regular blender *in batches!* 
-Taste and adjust seasoning if desired.
+- Pre heat the oven to 400F and prepare a baking tray by lining with parchment.
+- Toss the tomato in 1/4 cup olive oil and some salt and pepper and lay on tray evenly.
+- Roast in oven for 45 minutes.
+- In a large pot, heat 2 Tbsp oil and 2 Tbsp butter and saute onion, garlic and chili flakes until translucent.
+- Add canned tomato, basil, thyme and stock and simmer.
+- Once the tomatoes in the oven are done add those to the pot as well as all the juices on your baking tray.
+- Bring to a boil then reduce to a simmer for 40 minutes uncovered.
+- Blend using immersion(stick) blender or in a regular blender *in batches!* 
+- Taste and adjust seasoning if desired.
 
 ### Notes
 If you are blending in batches DO NOT overfill your blender! 
