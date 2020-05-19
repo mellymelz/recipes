@@ -8,3 +8,6 @@
 - 2oz ginger beer
 - lime wedge
 
+## Method
+
+Put it in a glass with ice and stir.
