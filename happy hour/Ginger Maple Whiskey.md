@@ -10,4 +10,4 @@
 
 ## Method
 
-Put it in a glass with ice and stir.
+Put all except ginger beer in shaker and shake. Pour over ice and top with ginger beer and lime wedge.
