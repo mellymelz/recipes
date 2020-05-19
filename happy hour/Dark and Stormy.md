@@ -7,3 +7,8 @@
 - .5oz lime juice
 - .5oz cane syrup
 - lime wheel
+
+
+## Method
+
+pour in a glass with ice and stir
