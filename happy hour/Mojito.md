@@ -8,3 +8,9 @@
 - club soda
 - lime
 - mint
+
+## Method
+
+Muddle lime and mint in a glass, top with ice add ingredients and stir. 
+
+Garnish with more mint and lime.
