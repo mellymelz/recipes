@@ -29,6 +29,21 @@ This makes a HUGE cake. Instructions are on regular recipe this is just ingredie
 * 2 tsp vanilla
 * 2 cups flaked coconut, lightly toasted
 
+## Method
+
+- Preheat oven to 350F
+- Sift together the flour, baking powder and salt. Set aside.
+- In a large bowl beat together egg yolks with 300g of sugar until lightened then mix in the milk and vanilla.
+- In a seperate bowl beat the egg whites with the remaining 100g cup of sugar until soft peaks.
+- Fold the dry indredients and yolks together.
+- Then fold the whites in. 
+- Pour into prepared pan and smooth top with offset spatula.
+- Bake 25-35 minutes.
+- Cool the cake then poke holes all over it with a skewer.
+- Combine the soaking liquid and pour over the cake.
+- Cover and put in fridge for 1 hr to overnight.
+- Whip together topping ingredients and spread all over the cake before you want to eat it.
+
 ### Notes
 
 Again, find method notes in other cake recipe, this is basically a double recipe for my hotel pan that is for feeding a party. 
