@@ -14,7 +14,7 @@ Love wings? Don't eat chicken? Here!! (also good if you eat chicken)
 - 1/4 tsp salt
 - 1/4 tsp pepper
 
-### Buffalo Sauce (use this on wings toooooo) MAKES WAY MORE THAN YOU NEED FOR THIS RECIPE!!!
+### Buffalo Sauce (use this on wings toooooo) Might make more than you like??!!!
 
 #### If you are lazy just mix 1 cup of Franks with 1 Tbsp butter and heat together 
 
