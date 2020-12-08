@@ -7,6 +7,7 @@
 * 1/2 cup butter
 * 2/3 cup white sugar
 * 2 eggs
+* 1 cup buttermilk
 * 1/2 tsp baking soda
 * 1 cup cornmeal
 * 1 cup all purpose flour (can sub for gluten free if you are celiac ive done both ways!)
