@@ -2,7 +2,7 @@
 
 makes 3.5 cups
 
-## Ingedients
+## Ingredients
 
 - 3 cups greek yogurt
 - 1 lemon of juice (3 Tbsp)
