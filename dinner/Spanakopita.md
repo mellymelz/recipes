@@ -26,3 +26,5 @@ makes about 27 but depends if you make large or small
 ### Notes
 
 I tend to make these larger but if you make smaller the cooking time will be less. If you are unsure how to fold the phyllo into triangles just google it lol.
+
+<a href="https://www.verywellfit.com/recipe-nutrition-analyzer-4157076" target="_blank"><img width="320" height="633.583" src="https://www.verywellfit.com/thmb/-KAiO-V1koyZM5MMW84dKimc7CA=/1000x0/Nutrition-Label-Embed-1553231614-e12df738c790478fb618088859e3ac54.png" /></a>
