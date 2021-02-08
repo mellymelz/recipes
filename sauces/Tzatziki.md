@@ -20,3 +20,6 @@ makes 3.5 cups
 ### Notes
 
 You can also let yogurt sit in a coffee filter overnight to make a thicker tzatziki but i like it as is for dippin'.
+
+<a href="https://www.verywellfit.com/recipe-nutrition-analyzer-4157076" target="_blank"><img width="320" height="655.467" src="https://www.verywellfit.com/thmb/kIoAY9EyxnOHhwNOAxTFHAEzkt0=/1000x0/Nutrition-Label-Embed-1304131907-cb3d812dacba49969b38b7d68f8b4946.png" /></a>
+
