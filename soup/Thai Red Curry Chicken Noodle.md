@@ -34,5 +34,4 @@
 * Season with fish sauce to taste.
 * Garnish with fresh cilantro <3
 
-### The nutrition into is based on this making 8 servings. Adjust accordingly if that matters to you.
-<a href="https://www.verywellfit.com/recipe-nutrition-analyzer-4157076" target="_blank"><img width="320" height="633.583" src="https://www.verywellfit.com/thmb/iWVBZhfGIIBI4nUgIAIQSxCIdcc=/1000x0/Nutrition-Label-Embed-31526059-450ef77cd14d49c580ef6a81d672823e.png" /></a>
+<a href="https://www.verywellfit.com/recipe-nutrition-analyzer-4157076" target="_blank"><img width="320" height="655.467" src="https://www.verywellfit.com/thmb/eRnzFy49-L_qho4X21u5VHbJKh4=/1000x0/Nutrition-Label-Embed-1295878478-191c3dc98b314617bf4ef55fd32e3f10.png" /></a>
