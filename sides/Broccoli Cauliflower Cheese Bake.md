@@ -30,4 +30,4 @@
 
 #### with no topping based nutrition as i rarely add the topping
 
-<a href="https://www.verywellfit.com/recipe-nutrition-analyzer-4157076" target="_blank"><img width="320" height="633.583" src="https://www.verywellfit.com/thmb/DF_bvQmu3_QRRDBMoF_fEhKLcbA=/1000x0/Nutrition-Label-Embed-851371755-8d63ece29c96428ca31060ecc09bf4fe.png" /></a>
+<a href="https://www.verywellfit.com/recipe-nutrition-analyzer-4157076" target="_blank"><img width="320" height="633.583" src="https://www.verywellfit.com/thmb/HPUMpBi3ISsLHAgRU16bpewj9_w=/1000x0/Nutrition-Label-Embed-1960822060-042bda2cf32b4587a094d11b89de3b06.png" /></a>
