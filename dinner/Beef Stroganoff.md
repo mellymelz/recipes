@@ -34,6 +34,13 @@
 * Add in the water and beef bouillon base, scraping the bottom with a whisk to get all the bits stuck to the bottom, incorporated with the broth
 * Add the stew meat and plate drippings back to the pan, bring to a boil then reduce the heat and cover
 * Simmer on low for 2 hours
+* Once the meat is done, cook the egg noodles in boiling water until al dente, no firmer to avoid mushy noodles – best to keep a watchful eye on them!
+* Mix the sour cream, flour, tomato paste and pepper in a bowl, whisking until smooth
+* Add a few spoonful of hot broth to the sour cream mixture, whisking it around to incorporate
+* Add all of the sour cream mixture to the sauté pan with the meat and broth, whisking constantly until totally combined
+* It may look lumpy for a bit but it will smooth out
+* Add in the egg noodles
+* Serve!
      
 #### ORIGINAL RECIPE FROM https://moderncrumb.com/best-beef-stroganoff/
     
