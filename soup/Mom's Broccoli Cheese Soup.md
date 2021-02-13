@@ -30,3 +30,5 @@
 
 ### Notes
 Seriously, i cant get enought of this soup it can be dangerously easy to over eat!
+
+<a href="https://www.verywellfit.com/recipe-nutrition-analyzer-4157076" target="_blank"><img width="320" height="633.583" src="https://www.verywellfit.com/thmb/uo7TQZaDQ7PYi89vyPbeqoElH0Y=/1000x0/Nutrition-Label-Embed-263330351-fe0e0d357d4147f582d7b50f59592ffc.png" /></a>
