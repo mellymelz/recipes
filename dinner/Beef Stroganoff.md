@@ -1,10 +1,8 @@
-# NOT COMPLETE YET STILL NEEDS TESTING
 # Beef Stroganoff
 
 ## Ingredients
 
 * 2 lb stew meat or a chuck roast cut into cubes
-* 1 tsp season-all (seasoned salt)
 * 1 tsp kosher salt
 * 1/4 tsp pepper
 * 1 tbsp olive oil
@@ -16,10 +14,9 @@
 
 ### Sauce
 
-* 2 c sour cream
+* 1 c sour cream
 * 3 tbsp flour
-* 1-2 tbsp tomato paste
-* pepper
+* 1.5 tbsp tomato paste
 
 ## Method
  
@@ -46,9 +43,7 @@
     
 * ADD 12 MUSHROOMS AND ONE DILL PICKLE
     
-<a href="https://www.verywellfit.com/recipe-nutrition-analyzer-4157076" target="_blank"><img width="320" height="633.583" src="https://www.verywellfit.com/thmb/kng2352eZub4MIltaX-w235XL5g=/1000x0/Nutrition-Label-Embed-2101877112-de78d34730184684a505547a6eb4ab7a.png" /></a>
 
     
 * WITH ZUCHINNI NOODLES (4 ZUCHS)
     
-<a href="https://www.verywellfit.com/recipe-nutrition-analyzer-4157076" target="_blank"><img width="320" height="633.583" src="https://www.verywellfit.com/thmb/a55Um_kqVdhfrB4gWb3hyBBvyFM=/1000x0/Nutrition-Label-Embed--96746083-9408d07e05014e2ca2982748e8177766.png" /></a>
