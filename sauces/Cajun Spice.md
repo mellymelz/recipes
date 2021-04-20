@@ -1,6 +1,7 @@
 # Cajun Spice
 
 #### This is my go to on chicken to bake then put on salads, wraps, pasta, whatever. Glens fave!!
+#### makes 1/4 cup of spice 
 
 ## Ingredients
 
