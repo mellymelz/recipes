@@ -24,3 +24,8 @@
 - In a large pot, melt butter and oil and good the onion, ginger and garlic until light gold (about 3-4 minutes)
 - Add the chicken, tomato, and spices then cook another 5-6 minutes. Chicken should be cooked or very close.
 - Add the cream or yogurt last and simmer for 10 minutes.
+
+
+### Nutrition based on using 3.5%MF yogurt
+<a href="https://www.verywellfit.com/recipe-nutrition-analyzer-4157076" target="_blank"><img width="320" height="633.583" src="https://www.verywellfit.com/thmb/3XoBh03XrnTdhj4pfKGuyT-XC4o=/1000x0/Nutrition-Label-Embed-2045433922-f7f58d59d0774cee8954a273e360cb2c.png" /></a>
+
