@@ -1,6 +1,6 @@
 # Chocolate Cake
 
-####Recipe from Jennifer Leroy, this is my most requested recipe EVER. PERIOD. Thanks Jenn for years of epic birthday cakes and cupcakes.
+#### Recipe from Jennifer Leroy, this is my most requested recipe EVER. PERIOD. Thanks Jenn for years of epic birthday cakes and cupcakes.
 
 Makes 1 x 12" or 2 x 6" or 2 x 9"
 
