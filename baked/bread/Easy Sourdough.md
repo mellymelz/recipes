@@ -41,7 +41,7 @@ Requires 10-14 hours, including resting time. Active sourdough starter required.
 
 ### Shape and Final Rise
 
-- Prepare a length of parchment suitable to support the dough as a slight
+- Prepare a length of parchment suitable to support the dough as a sling
 - Lightly flour a work surface to prevent the dough from sticking
 - Remove dough from the bowl and place on floured surface
 - Shape dough by pulling dough into itself around sides and to the bottom
