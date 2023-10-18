@@ -25,7 +25,7 @@ Requires 10-14 hours, including resting time. Active sourdough starter required.
 - Mix starter, water and salt thoroughly
 - Add 500g of flour
 - Use a spatula or your clean hands to form a shaggy mass
-- Encorporate all dry flour
+- Encorporate all dry flour but do not overwork
 - Cover and let sit at room temp for 1 hour
 
 ### Fold and Rise
