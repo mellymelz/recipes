@@ -28,7 +28,7 @@ Requires 10-14 hours, including resting time. Active sourdough starter required.
 - Encorporate all dry flour
 - Cover and let sit at room temp for 1 hour
 
-### Fold & Rise
+### Fold and Rise
 
 - Wet hands so they won't stick to dough
 - Pull the dough from one side and fold over onto itself
@@ -39,7 +39,7 @@ Requires 10-14 hours, including resting time. Active sourdough starter required.
 - Cover and let rise for 7-10 hours depending on room temp
 - Dough will rise 50-75% of original size when ready
 
-### Shape & Final Rise
+### Shape and Final Rise
 
 - Prepare a length of parchment suitable to support the dough as a slight
 - Lightly flour a work surface to prevent the dough from sticking
