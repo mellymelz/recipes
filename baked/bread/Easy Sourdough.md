@@ -15,9 +15,6 @@ Requires 10-14 hours, including resting time. Active sourdough starter required.
 - Dutch oven
 - Cooling rack
 
-## Starter
-
-
 ## Method
 
 ### Make the Dough
@@ -25,7 +22,7 @@ Requires 10-14 hours, including resting time. Active sourdough starter required.
 - Feed sourdough starter 12 hours before starting
 - Measure 50g of starter into a large mixing bowl
 - Add 350g of water and 10g of salt
-- Mix starter and water thoroughly
+- Mix starter, water and salt thoroughly
 - Add 500g of flour
 - Use a spatula or your clean hands to form a shaggy mass
 - Encorporate all dry flour
