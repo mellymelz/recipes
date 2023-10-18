@@ -1,6 +1,6 @@
 # Easy Sourdough
 
-Requires 10-14 hours, including resting time. Starter needs to be fed 12 hours before starting.
+Requires 10-14 hours, including resting time. Active sourdough starter required. Starter needs to be fed 12 hours before starting.
 
 ## Ingredients
 
@@ -17,7 +17,6 @@ Requires 10-14 hours, including resting time. Starter needs to be fed 12 hours b
 
 ## Starter
 
-- Active sourdough starter required
 
 ## Method
 
