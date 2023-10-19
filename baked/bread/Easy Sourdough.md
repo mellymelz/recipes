@@ -53,13 +53,13 @@ Requires 10-14 hours, including resting time. Active sourdough starter required.
 ### Bake
 
 - Use heat protection when baking
-- Place the dutch oven with lid inside the oven
+- Place the dutch oven with lid inside the oven on the middle rack
 - Preheat the oven to 450F *with the dutch oven and lid inside*
 - Once heated, remove the hot dutch oven and lid (careful)
 - Remove hot lid from dutch oven (careful)
 - Place dough into the open dutch oven using the parchment paper as a sling (careful)
 - Place lid on dutch oven (careful)
-- Place dutch oven back into hot oven
+- Place dutch oven back into hot oven (careful)
 - Bake for 20 minutes
 - Remove lid from dutch oven (careful)
 - Bake for another 15-20 minutes depending on taste
