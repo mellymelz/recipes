@@ -66,7 +66,7 @@ Requires 10-14 hours, including resting time. Active sourdough starter required.
 - Longer is darker/harder
 - Remove dutch oven from oven when ready (careful)
 - Remove bread from dutch oven with parment paper as sling (careful)
-- Place brea on cooling rack
+- Place bread on cooling rack
 - Let bread cool for 1-2 hours
 - Do not cut into bread until it has cooled
 - Enjoy!
