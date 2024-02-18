@@ -4,7 +4,7 @@
 - 3 Tbsp Red wine vinegar (can sub white!)
 - 2 Tbsp fresh-squeezed lemon juice
 - 1 Tbsp ground sumac
-- 2 tsp greek spice mix (found here: https://github.com/mellymelz/recipes/blob/master/sauces/spice%20mixes/Greek%20Spice%20Mix.md)
+- 2 tsp greek spice mix ([found here](https://github.com/mellymelz/recipes/blob/master/sauces/spice%20mixes/Greek%20Spice%20Mix.md))
 - 1/2 tsp oregano
 - 1/2 tsp ground black pepper (or to taste)
 - 1/2 cup olive oil
