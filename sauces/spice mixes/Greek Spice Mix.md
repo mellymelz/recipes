@@ -1,5 +1,7 @@
 # Greek Spice Mix
 
+### makes 1/2 cup
+
 - 3 Tbsp oregano
 - 2 Tbsp basil
 - 1 Tbsp dill
